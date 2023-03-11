@@ -3,6 +3,9 @@
 All things finance, everything I learn and know about finance will be dumped here. <br>
 Getting rich is easy, Reading through rules, creating and implementing strategies, tracking spendings is not.
 
+<br> 
+** You will never win without discipline. ** 
+
 [Zerodha's starter kit for theoritical knowledge](https://zerodha.com/varsity/)
 
 
