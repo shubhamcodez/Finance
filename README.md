@@ -4,7 +4,7 @@ All things finance, everything I learn and know about finance will be dumped her
 Getting rich is easy, Reading through rules, creating and implementing strategies, tracking spendings is not.
 
 <br> 
-<strong>You will never win without discipline.</strong> 
+<strong>Getting rich like all things requires efforts, hardwork and persistence through good and bad, you will never win without discipline.</strong> 
 
 [Zerodha's starter kit for theoritical knowledge](https://zerodha.com/varsity/)
 
