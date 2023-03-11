@@ -11,5 +11,5 @@ All things finance, everything I learn and know about finance will be dumped her
 
 
 
-<br>This is my futile attempt to teach wealth creation to a generation that lives like there's no tomorrow and then complains that we have no money. 
+<br>This is my futile attempt to teach wealth creation to a generation that lives like there's no tomorrow and then complains that we have no money because of governments, taxes, inflation, etc, etc. 
 Yes, I trade crypto. :)
